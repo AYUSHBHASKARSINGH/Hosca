@@ -1,1 +1,1 @@
-Official Website of HOSCA , IIT Patna
+Official Website of HOSCA , IIT Patna 
